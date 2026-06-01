@@ -1,3 +1,4 @@
+[Evaluación parcial N°2.docx](https://github.com/user-attachments/files/28450031/Evaluacion.parcial.N.2.docx)
 # angncontreras.github.io
 
 <img width="952" height="717" alt="image" src="https://github.com/user-attachments/assets/54edd081-7d63-4bae-b733-220268f358c7" />
